@@ -6,4 +6,4 @@ Olá, este é um cheat para CS:GO, da Cheat Supreme. Está versão é a basic, q
 [ Cheat Supreme Basic ]
 
 
-Download [AQUI](https://mega.nz/file/aCgwUT7b#tVyq-nYnmaQqDu1HPGaNZZ5iqtwodW_M-SbOcVbIvVA)
+Download [AQUI](https://mega.nz/file/mC5HAISD#6mF8mxvYSNisaEQlb_53q7KX8Qu1I0PbVyb-OVd7c44)

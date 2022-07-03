@@ -6,7 +6,7 @@ Olá, este é um cheat para CS:GO, da Cheat Supreme. Está versão é a basic, q
 [ Cheat Supreme Basic ]
 
 
-Download [AQUI](https://mega.nz/file/eOxllKQD#L97XSQ9GiawumO-Pb0_Vd8uXM0ufAFL4fMti2n2yi18)
+Download [AQUI](https://mega.nz/file/HKQzXIoS#QiI-PHk4Tx2-iKFYckIXoxebEfhIlHiV9lmzgih8P4Y)
 
 
 Senha para descompactar: cheat
